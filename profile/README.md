@@ -1,1 +1,1 @@
- `y click thru clutter wen 1 .plan do trick`
+ y click thru clutter wen 1 .plan do trick
